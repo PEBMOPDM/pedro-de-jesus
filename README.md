@@ -1,2 +1,2 @@
-# pedro-de-jesus, Juliana Mussi Vitoria Carneiro, Riad Neruda, Maria Luisa
+# pedro-de-jesus
 atividade avaliativa primeiro trimestre
